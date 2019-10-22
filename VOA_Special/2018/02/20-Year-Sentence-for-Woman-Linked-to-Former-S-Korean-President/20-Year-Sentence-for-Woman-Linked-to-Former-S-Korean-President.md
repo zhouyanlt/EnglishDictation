@@ -1,5 +1,5 @@
 
-The women who's dealings with former South Korean President Pao-ken-hey, 
+The women who's dealings with former South Korean President Pao-ken-hey,
 The woman whose dealings with former South Korean President Park Geun-hye
 
 let to her remove? from office has been sentenced to twenty(20) years and prison.
@@ -35,7 +35,6 @@ The scandal has led to calls for reform of the chaebols, a term for South Korean
 Some critidit? say, this business have too much influences over the econemay?
 Some critics say these businesses have too much influence over the economy.
 
-
 Chai-Shang-Xiu with a cursed having strong influence over the former President which some
 Choi Soon-sil was accused of having strong influence over the former president, which some
 
@@ -58,7 +57,7 @@ Business leaders connected to the case also received jail sentences.
 Business leaders connected to the case also received jail sentences.
 
 The court sentence the chairman of the Lao-Tei Group Shin-Dong-Bin to two and half years
-The court sentenced the chairman of the Lotta Group Sin Dong-bin to two and a half years
+The court sentenced the chairman of the Lotte Group Sin Dong-bin to two and a half years
 
 in prision on briborei? charges. Shin was charged with giving over six millon dollars to
 in prision on bribery charges. Sin was charged with giving over $6 million to
