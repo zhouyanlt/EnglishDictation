@@ -182,6 +182,48 @@ I'm Mario Ritter.
 
 # Fourth Dictation
 
+The woman whoes dealings with former South Korean President Park Geun-hye led to her removal from office has been sentenced to 20 years in prison.
 
+The Seoul Central District Court announced the sencenting(sentencing) of Choi Soon-sil on Tuesday.
+
+The court ordered Choi to pay a fine of nearly $17 millon.
+
+She was found guilty on charges of abuse of power, bribery and meddling in state affairs.
+
+The scandal involving Choi, Park, other government officials and business leaders led to huge protests across the country.
+
+As a result, South Korean's National Assembly voted to impeach Park in late 2016.
+
+The Supreme Court voted to remove her from office last year.
+
+This led to early presidential elections, won by current president Moon Jae-in.
+
+The scandal has led to calls for reform of the chaebols, a term for South Korean's very largest corporations.
+
+Some critics say this businesses have too much influence over the economy.
+
+Choi Soon-sil was accused (of) having strong influence over the former president, which some observers described as a "cult-like" control.
+
+The 62-year-old longtime friend of Park held no government position, but she had influence over the president's decisions.
+
+Park and Choi had known each other since the 1970s.
+
+Choi also was found guilty of using her relationship with Park to force large businesses to donate more than $68 millon to two non-profit corporations she controlled.
+
+Business leaders connected to the case also received jail sentences.
+
+The court sentenced the chairman of the Lotte Group, Sin Dong-bin to two and a half years in prison on bribery charges.
+
+Sin was charged with giving over $6 millon to a group Choi supported in exchange for state permission to open a duty-free store and other things.
+
+A former aide to Park also received a six-year sentence for abuse of power.
+
+Last week, another person linked to the case had his sentence suspended and was released from prison.
+
+Lee Jae-young is heir to the wealth of the family that controls much of Samsung Electronics, one of South Korean's biggest companies.
+
+Lee was sentenced last August to five years in prison for bribery and a number of other financial crimes link(ed) to the Choi scandal.
+
+I'm Mario Ritter.
 
 
