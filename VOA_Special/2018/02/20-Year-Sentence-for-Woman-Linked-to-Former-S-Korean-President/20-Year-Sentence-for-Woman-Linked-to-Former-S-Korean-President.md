@@ -1,3 +1,4 @@
+# First Dictation
 
 The women who's dealings with former South Korean President Pao-ken-hey,
 The woman whose dealings with former South Korean President Park Geun-hye
@@ -83,3 +84,72 @@ for bribery and a number of other financial crimes linked to the Choi scandal.
 I'm Mario Witter?
 I'm Mario Ritter.
 
+# Second Dictation
+
+The woman whose dealings with former South Korean president Park Geun-hye led to her removal from office
+
+has been sentenced to 20 years in prison.
+
+The Seoul Central District Court announced the sentencing of Choi Soon-sil on Tuesday.
+
+The court ordered Choi to pay a fine of nearly $17 millon, She was found guilty on charges of abuse
+
+of power, bribery and meddling in state affairs.
+
+The scandal involving Choi, Park, other government officals and business leaders led to huge protests
+
+across the country.
+
+As a result, South Korean's National Assembly voted to impeach Park in late 2016.
+
+The Supreme Court voted to remove her from office last year.
+
+This led to early presidential elections, won by current president Moon Jae-in.
+
+The scandal has led to calls for reform of the chaebals, a term for South Korean's very largest corporations.
+
+Some critics say these businesses have too much influences over the economy.
+
+Choi Soon-sil with accused having strong influence over the former president, which some observers
+
+described as a "cult-like" control.
+
+The 62-year-old longtime friend of Park held no government position, but she had influence over the president
+
+descisions.
+
+Park and Choi had known each other since the 1970s.
+
+Choi also was found guilty of using her relationship with Park to force large business to donate more than $68
+
+millon to two non-profit corporations she controled.
+
+Business leaders connected to the case also received jail sentences.
+
+The court sentenced the chairman of the Lotte Group, Sin Dong-Bin to two and half years in prison on bribery charges,
+
+Sin was charged with giving over $6 millon to a group Choi supported and exchange for state permisson to open a
+
+duty-free store and other things.
+
+A former aide to Park also received a 6-year sentence for abuse of power.
+
+Last week, another person linked to the case had his sentence suspended and was released from prison.
+
+Lee Jae-Young is heir to the wealth of the family that controls much of Sumsang Electronics, one of South Korean's
+
+biggest companies. Lee was sentenced last August to five years in prison for bribery and number of other finantial(financial)
+
+crimes linked to the Choi scandal.
+
+I'm Mario Ritter.
+
+# Third Dictation
+
+The woman whose dealings with former South Korean president Park Geun-hye, led to her removal from office has been
+
+sentenced to 20 years in prison.
+
+The Seoul Central District Court anounced the sentencing of Choi Soon-sil on Tuesday.
+
+The court ordered Choi to pay a fine of nearly 
